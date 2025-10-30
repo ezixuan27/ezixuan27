@@ -5,7 +5,9 @@ My name is Zixuan Zou, but you can call me Ella! I'm currently a second year stu
 ✨I'm a student new to the tech field, deeply curious about the potential of AI and how it continues to reshape industries. With the internet taking decades to spread, and AI achieving similar impact in just a few years, I feel fortunate to be born in such an era. My interest in organizing and connecting systems naturally led me to supply chain, a field that not only sparks my passion but also holds the possibility of letting me see the world.✨
 
 Pronouns: She/Her
+
 Reach me @: ezixuan27@gmail.com
+
 Hobbies: Rock Climbing! 
 
 <!--
